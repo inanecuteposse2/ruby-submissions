@@ -120,8 +120,25 @@ Outline:
 
 Phyllis Hugunien: "How to Buy a House the no BS way"
 
-Outline: 
+Outline:
 
+   Why a House is Not a Home
+      Initial Things to Look For
+        Affordability
+        Neighborhood
+        Hidden Defects
+        Growing Family
+        
+      Credit Issues
+      Pre-Approval
+      
+    Huge Beware:  Bank Owned/Foreclosures
+    Right Realtor - Look Out for "Newbies", "Friends of Family
+    Online Tools: Zillow, MLS, RE Blogs, NY Times RE section
+    
+    Ultimate Goal:  Get Most Reasonably Priced Home in Good Neighborhood Can Afford:  Forgo Luxury
+    Check Out Target Neighborhood - Talk to Residents
+    Beware Buying to Flip - Up Against Professionals 
 
 Robbie Smith:"Do you Strava?"
 
